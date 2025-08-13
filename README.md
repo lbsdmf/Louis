@@ -1,3 +1,4 @@
+当你有机会做出选择的时候,不要让自己后悔。
 ![image](https://github.com/lbsdmf/lushi/assets/96778118/89159315-b913-4a27-b327-ec38ae47f875)# 卢氏Wiki
 
 # “开天辟地”
